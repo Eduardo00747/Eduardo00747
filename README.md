@@ -20,7 +20,7 @@
 Apaixonado por tecnologia, educação, jógos eletronicos e games em geral.
 
 ## Contatos 
-- Whatssap - 9 97237141 <br/>
+- Whatssap - 9 5772-4266 <br/>
 - Gmail - alcantaradesouzae@gmail.com <br/>
 - Hotmail - theblack00747@hotmail.com <br/>
 
